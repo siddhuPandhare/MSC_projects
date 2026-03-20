@@ -1,1 +1,1 @@
-# MSC_projects
+# We will add projects soon
